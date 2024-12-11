@@ -2,7 +2,7 @@
 
      
 
-I am a Computer Science at CSUF and I plan on graduating in 2028. 
+I changed my major to Biology at CSUF and I plan on graduating in 2028. 
 
      
 
